@@ -8,7 +8,7 @@ Passionate Backend Developer with strong knowledge of Python development, API de
 
 📧 Email: **naveenrs.jn@gmail.com**
 
-🌐 Portfolio: **https://navee-90.github.io/naveen-portfolio/**
+📱 Contact: **+91 8919245417**
 
 ---
 
